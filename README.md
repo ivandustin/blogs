@@ -1,0 +1,2 @@
+- [Faith = Word × Trust: A Scientific and Biblical Analysis](faith.md)
+- [The Equation of Faith: A Biblical Analysis of Word and Trust](faith2.md)
