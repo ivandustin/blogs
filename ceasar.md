@@ -15,11 +15,3 @@ So the lesson is not only about paying what we owe to the government. It is also
 If we give to those who already have much, how much more should we give to those who have little?
 
 True faith should lead us to generosity. It should move us to care for the poor, support the weak, and share what we have.
-
-In simple terms:
-
-- Give what is required to those in authority.
-- Give what is needed to those who are poor.
-- Give your heart and obedience to God.
-
-Helping the poor is not just charity. It is part of living with love, justice, and compassion.
