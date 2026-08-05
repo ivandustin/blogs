@@ -2,3 +2,4 @@
 - [The Equation of Faith: A Biblical Analysis of Word and Trust](faith2.md)
 - [God: The Unseen Foundation of Creation](foundation.md)
 - [Like a Wireless Prayer](pray.md)
+- [Give to Caesar, and Give to the Poor](ceasar.md)
