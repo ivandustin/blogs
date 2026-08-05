@@ -3,3 +3,4 @@
 - [God: The Unseen Foundation of Creation](foundation.md)
 - [Like a Wireless Prayer](pray.md)
 - [Give to Caesar, and Give to the Poor](ceasar.md)
+- [Give to Caesar, Give to the Poor](ceasar2.md)
