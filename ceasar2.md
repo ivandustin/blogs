@@ -1,10 +1,8 @@
 # Give to Caesar, Give to the Poor
 
-Jesus once said:
+When Jesus said, **“Give to Caesar what is Caesar’s, and to God what is God’s,”** He was answering a question about taxes. But His answer reaches beyond money and government. It reminds us that earthly authorities may receive what is required, yet God deserves our whole life: our worship, obedience, mercy, and love.
 
-> “Give to Caesar what is Caesar’s, and to God what is God’s.”
-
-This teaching is often understood as a reminder to be responsible in society. If something is owed to the government, such as taxes, then it should be given. But Jesus’ words also point us to a deeper truth: everything ultimately belongs to God.
+If we are careful to give what is owed to Caesar, we should be even more careful to give what is needed to the poor. Caesar represents power and wealth. The poor represent need, vulnerability, and the people God calls us to notice.
 
 ## If We Give to Caesar
 
