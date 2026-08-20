@@ -4,3 +4,4 @@
 - [Like a Wireless Prayer](pray.md)
 - [Give to Caesar, and Give to the Poor](caesar.md)
 - [Yahweh: The Good Servant](name.md)
+- [The Only Way to Learn Is to Expose Yourself](expose.md)
