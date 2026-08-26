@@ -25,3 +25,7 @@ Reflects on the meaning “Yahweh saves” in the names Yeshayahu and Yehoshua. 
 ## [The Only Way to Learn Is to Expose Yourself](expose.md)
 
 Argues that learning requires exposure to unfamiliar ideas, real experience, feedback, and the possibility of failure. Growth comes through small challenges followed by honest reflection and repeated effort.
+
+## [Jesus Is the Main Character](mainchar.md)
+
+Centers God’s story on Jesus rather than ourselves. It explains how Christ’s obedience and sacrifice bring God’s justice and mercy together, offering forgiveness, righteousness, and eternal life to all who trust in Him.
