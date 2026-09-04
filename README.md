@@ -29,3 +29,7 @@ Argues that learning requires exposure to unfamiliar ideas, real experience, fee
 ## [Jesus Is the Main Character](mainchar.md)
 
 Centers God’s story on Jesus rather than ourselves. It explains how Christ’s obedience and sacrifice bring God’s justice and mercy together, offering forgiveness, righteousness, and eternal life to all who trust in Him.
+
+## [The Power of Words](words.md)
+
+Examines the power of words to build, heal, save, or destroy. Through examples from medicine and law, it shows how careful study and clear communication can shape diagnoses, legal judgments, and even the course of a person’s life.
